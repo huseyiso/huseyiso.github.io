@@ -1,2 +1,0 @@
-# huseyinsoylus.github.io
-#hosgeldiniz
