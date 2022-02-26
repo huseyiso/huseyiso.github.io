@@ -1,1 +1,0 @@
-# huseyinsoylus.github.io
